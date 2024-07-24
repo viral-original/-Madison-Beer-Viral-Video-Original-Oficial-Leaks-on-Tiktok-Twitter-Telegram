@@ -6,7 +6,7 @@
 ✅➤➤[LINK DOWNLOAD!](https://bit.ly/46j1eNC)>
 
 
-✅➤➤CLICK WATCH HERE VIDEOS! <[skrip](https://bit.ly/46j1eNC)>
+✅➤➤CLICK WATCH HERE VIDEOS! 
 
 
 ✅➤➤[WATCH LINK QUALITY HD!](https://bit.ly/46j1eNC)>
